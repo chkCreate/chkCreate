@@ -1,7 +1,5 @@
 👋 Hi, I’m Cinthia Hai Young Kim (@chkCreate)! I have worked in the construction and consulting field, and is looking to engage more technical solutions to the strategy narrative. Always interested in learning new solutions and techniques. 
 
-Check out my [résumé](Cinthia Kim Résumé.pdf) and let me know if you have any opportunities.
-
 Reach me by message on [LinkedIn](linkedin.com/in/cinthiahykim) or email cindi.hy.kim@gmail.com.
 
 Thank you and stay safe!
